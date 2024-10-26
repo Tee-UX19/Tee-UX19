@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Looking for ways to boost my employability<br>🤝 I’m looking for help with landing Internships, placements or work in general<br>🌱 I’m currently learning web dev through the Odin Project<br>💬 Ask me about anything, open to chat with anyone<br>⚡ Fun fact : We're probably gonna make it
+🔭 Looking for ways to boost my employability and expand my skillset<br>🤝 I’m looking for help with landing Internships, placements or work in general<br>🌱 I’m currently learning web dev through the Odin Project<br>💬 Ask me about anything, open to chat with anyone<br>⚡ Fun fact : We will all definitely reach our goals! 
 
 
 ## 🌐 Socials:
